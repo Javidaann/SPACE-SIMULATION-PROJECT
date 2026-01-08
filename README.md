@@ -71,8 +71,3 @@ Dunya yuzeyinde agirlik: 686.70 Newton
 
 **Javidan Safarli**  
 
-
-
----
-
-⭐ Projeyi beğendiyseniz yıldız vermeyi unutmayın!
